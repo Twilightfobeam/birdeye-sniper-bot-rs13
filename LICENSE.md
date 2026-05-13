@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with advanced Sniper for birdeye sniper bot | contract-verification & stop-loss, the #1 birdeye sniper bot. Includes contract-verification and stop-loss for a
 
 
 
